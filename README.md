@@ -1,1 +1,1 @@
-# Eukaryon_Indesign_Tutorial
+# Eukaryon Indesign Tutorial
